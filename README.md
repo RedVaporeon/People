@@ -1,1 +1,1 @@
-# Peoplewhutsk
+# People
